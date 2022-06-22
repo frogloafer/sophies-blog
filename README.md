@@ -1,1 +1,0 @@
-# sophies-blog
